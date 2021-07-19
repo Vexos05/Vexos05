@@ -8,7 +8,7 @@
   📚 Self-taugh man 📗
 - 🏎 Intrested to bikes and also super cars 🚗
 - 🥅 likes talking about bussnies  Things 🕴
-- ⚡ Want Talk/wortogehter DM me! 👨‍💻
+- ⚡ Want Talk/work togehter DM me! 👨‍💻
 
 
 
