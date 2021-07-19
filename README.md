@@ -33,6 +33,6 @@
 
 <br />
 <br />
-
+<img align="left" alt="vexos05 Github Stats" src="https://github-readme-stats.vercel.app/api?username=vexos05&show_icons=true "/>
 
 
