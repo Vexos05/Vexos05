@@ -1,4 +1,4 @@
-### Hi there, I'm Błazej - aka [Vexos/Balti/Grub....] 👋
+### Hi there, I'm Błazej - 👋
 
 
 ## Few thing about me!
