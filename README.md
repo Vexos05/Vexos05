@@ -3,8 +3,7 @@
 
 ## Few thing about me!
 
-- 👨🏻‍💻 Now Javascript Front-end Developer 😎 
-- 🦾 I’m currently learning Node.js🧐
+- 🦾 I’m currently learning JavaScript🧐
   📚 Self-taugh man 📗
 - 🏎 Intrested to bikes and also super cars 🚗
 - 🥅 likes talking about bussnies  Things 🕴
