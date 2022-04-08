@@ -7,7 +7,11 @@
   📚 Self-taugh man 📗
 - 🏎 Intrested to bikes and also super cars 🚗
 - 🥅 likes talking about bussnies  Things 🕴
+- 🧑‍💼Work as Leader Team🧑‍💼
+- 🚀Making big deals 🚀
+- 🕴️J'm  Creating people 🕴️
 - ⚡ Want Talk/work togehter DM me! 👨‍💻
+- 
 
 
 
