@@ -11,7 +11,7 @@
 - 🚀Making big deals 🚀
 - 🕴️J'm  Creating people 🕴️
 - ⚡ Want Talk/work togehter DM me! 👨‍💻
-- 
+
 
 
 
