@@ -11,14 +11,6 @@
 
 
 
-
-
-
-
-
-
-
-
 <br />
 
 ### Languages and Tools:
