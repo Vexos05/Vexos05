@@ -10,7 +10,7 @@
 - 🧑‍💼Work as Leader Team🧑‍💼
 - 🚀Making big deals 🚀
 - 🕴️J'm  Creating people 🕴️
-- ⚡ Want Talk/work togehter DM me! 👨‍💻
+- ⚡ Want work togehter? DM me! 👨‍💻
 
 
 
